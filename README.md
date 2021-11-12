@@ -1,5 +1,5 @@
 # Base-Glife
 
 
-Base disponible ici :https://discord.gg/JPx9PENxd8
+Base disponible ici :https://discord.gg/tQw8Zmspj6
 
